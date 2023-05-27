@@ -4,6 +4,8 @@
 
 ![image](MBACoverLetters.jpg)
 
+![image](MBACoverLetter3.jpg)
+
 ![image](EthicsandExcellence.png)
 
 ![image](USCopyrightCertificate.png)
